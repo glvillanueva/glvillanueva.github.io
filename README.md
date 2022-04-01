@@ -14,7 +14,7 @@ He's a silly little dog, usually in a silly little goofy mood, and either starts
 
 He will jump on any sleeping person to wake them up whenever my mother says to wake them up.
 
-He has a sixth sense and knows when we are secretly eating wothout him.
+He has a sixth sense and knows when we are secretly eating without him.
 
 The best way to summon him is by laughing. He will assume that you are having fun without him, and will run to your location. 
 You can also summon him by performing a special r̶̪͒i̶̬̒t̵̠̓u̶̞̾a̵̺͛l̸̮̽. 
