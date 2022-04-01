@@ -3,6 +3,8 @@
 Owned by: Glorianne Villanueva
 
 
+![amogus](https://user-images.githubusercontent.com/102577395/161300064-21b06a81-d367-4318-abb6-c70d71087694.jpg)
+
 
 
 You can use the [editor on GitHub](https://github.com/glvillanueva/glvillanueva.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
