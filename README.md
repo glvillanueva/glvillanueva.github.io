@@ -2,11 +2,11 @@
 
 Owned by: Glorianne Villanueva
 
-###Information
+### Information
 
 Shadow is a five-year-old Shih Tzu. He's the runt of his pack, but he is loved by us regardless. He is the half-brother of our previous dog, T-Bone, who passed away.
 
-###About him
+### About him
 
 All of the commands he knows were taught unintentionally, with the exception of: "sit"
 
