@@ -31,3 +31,6 @@ He likes to eat grass.... o.O
 
 He supports gay rights 👍
 ![gay rights](https://user-images.githubusercontent.com/102577395/161308334-a218afac-485e-49fc-80a5-c09aca861904.jpeg)
+
+....and he'll be our little boy no matter what <3
+![shadow wittle baby (1)](https://user-images.githubusercontent.com/102577395/161308861-5b6d6cf7-059a-42ed-b322-d1c6a221e5bb.jpg)
